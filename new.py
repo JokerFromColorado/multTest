@@ -10,12 +10,4 @@ r
 ryt56756
 werwerwe
 wer
-ertertertasdasdasdasdasds
-retwerwerrtyr
-ewrtyrtyrt
-werwertyrty
-werwerwerwertryasd
-asdyyry
-asdasdrtyry
-adsrtyt
-asdrtyryttry
+ertertertasasd
