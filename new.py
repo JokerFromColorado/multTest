@@ -4,12 +4,4 @@ sdfsdf
 sdfwewe
 ewwe
 qqqqqqqqqq456
-we
-yy
-r
-ryt56756
-werwerwe
-wer
-ertertertasasdasdasdasd
-asddassadasd
-asdsaa
+יצףיציצףיצףיצףיצף
