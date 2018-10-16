@@ -12,9 +12,4 @@ sdfsdf
 sffdsdaasdasdqqwqw
 asdasdasd
 asdasdasd
-asdasdasddasdasdadsdxxxxxxds
-adasdads
-saassadasdqwe
-qwe
-qwe
-ewq
+xxx
